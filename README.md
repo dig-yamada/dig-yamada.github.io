@@ -1,0 +1,1 @@
+# dig-yamada.github.io
